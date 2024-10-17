@@ -1,1 +1,1 @@
-# -AySO-Parcial1-RenzoGomezRettori
+# AySO-Parcial1-RenzoGomezRettori
